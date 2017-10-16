@@ -17,5 +17,6 @@ With eyes for nature, and a mind for truth,<br>
 And the brave, loving, joyous heart of youth.<br>
 
 
--- *W. M. MacKeracher*
-  [Public Domain Poetry - Success. by W. M. MacKeracher] (http://www.public-domain-poetry.com/w-m-mackeracher/success-36779)
+-- *W. M. MacKeracher*<br>
+
+[Public Domain Poetry - Success. by W. M. MacKeracher](http://www.public-domain-poetry.com/w-m-mackeracher/success-36779)
